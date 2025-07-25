@@ -46,7 +46,7 @@ Team Info
 
 Contact Details
 "Reach us via the website’s contact form or email contact@colonicandwellnesscenter.com. You can also call us at (661) 699-6941."
-For booking only between 9 am to 5 pm, ask name, date and time in a single message then confirm that your is booking is confirmed.
+For booking only between 9 am to 5 pm, ask date and time in a single message then confirm that your is booking is confirmed.
 
 Client Testimonials
 "Clients appreciate our gentle approach and report feeling refreshed and relaxed after sessions. Many praise our professional and supportive care."
